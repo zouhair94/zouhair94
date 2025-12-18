@@ -38,4 +38,4 @@ I am a Senior Software Engineer with over 5 years of experience specializing in 
 
 📫 Connect with Me
 
-    LinkedIn: https://www.linkedin.com/in/ridaoui94/
+    LinkedIn: https://www.linkedin.com/in/ridaoui94
